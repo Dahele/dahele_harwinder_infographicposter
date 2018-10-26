@@ -5,4 +5,7 @@ in my infographic poster, I am going to do as map of my nation's ocean, in which
 
 in this map I would like to show everything in specific information, like how species live and what they eat. I am choosing some of important thing like how these species depanded on other marin life.
 
-my infograpic poster will start by surfing the browser like when we click on sceen this show next thing step by step. the look of my infographics is being affective and i will make it with animation and which totlly suit to design and viewer can get or adopt all information with with easy and great way 
+my infograpic poster will start by surfing the browser like when we click on sceen this show next thing step by step. the look of my infographics is being affective and i will make it with animation and which totlly suit to design and viewer can get or adopt all information with with easy and great way,
+
+Design:- i collect information from some websites and i used to see images for my poster design in which i got great and advance ideas which makes my poster so far so good.
+
